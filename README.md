@@ -1,0 +1,1 @@
+# LW_bachelor_NTNU2024
